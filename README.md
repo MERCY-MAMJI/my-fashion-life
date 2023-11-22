@@ -1,1 +1,0 @@
-# my-fashion-life
